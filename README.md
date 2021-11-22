@@ -1,0 +1,2 @@
+# prak6algo_novika_065001900039
+prakalgo
